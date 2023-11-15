@@ -1,2 +1,1 @@
-# Earnig
-Best Earning apps
+
